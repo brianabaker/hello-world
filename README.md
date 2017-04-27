@@ -1,2 +1,7 @@
 # hello-world
-HELLO! WORLD! 
+Helllloooooo World!
+
+Briana here!
+Let's see what all I can do here...
+
+!!!
